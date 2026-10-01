@@ -1,0 +1,1 @@
+# osaka-softbank-vps-selection
